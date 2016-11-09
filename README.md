@@ -1,5 +1,6 @@
 # PhotoshopCS6Crack
-简单描述Mac版PhotoshopCS6的安装和破解，虽然网上有很多教程了，多一篇也无妨
+简单描述Mac版PhotoshopCS6的安装和破解，虽然网上有很多教程了，多一篇也无妨。
+破解仅供参考和学习，欢迎大家使用正版软件，支持正版版权！
 
 ## Mac版Adobe Photoshop CS6 安装及破解
 ### 前言
